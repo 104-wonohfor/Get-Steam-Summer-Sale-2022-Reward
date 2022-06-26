@@ -6,6 +6,7 @@
 Like every year, this year (2022) steam also released a summer event "Steam Summer Sale" with the reward being animated avatar border and pretty animated background as shown below. However, the process of completing the task is quite difficult and time consuming. So today I will show you how to get all the rewards in 1 minute!
 
 <br>
+
 # II- Instructions
 
 ### 1- Open Steam
