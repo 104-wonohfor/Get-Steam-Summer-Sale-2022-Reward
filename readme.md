@@ -7,7 +7,7 @@ Like every year, this year (2022) steam also released a summer event "Steam Summ
 
 How to get all the rewards of Steam Summer Sale 2022 in 1 minute
 <br>
-# II- Instructions on how to do it
+# II- Instructions
 
 ### 1- Open Steam
 ![image](https://user-images.githubusercontent.com/104601534/175810278-e40a0812-c57d-440f-b986-dc919ceaddc3.png)
