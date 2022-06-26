@@ -1,5 +1,8 @@
 # I – Introducing this year's Steam Event
+![image](https://user-images.githubusercontent.com/104601534/175810831-f4fdf3e4-3724-403e-aca3-e63b097e2b3e.png)
+
 <br>
+
 Like every year, this year (2022) steam also released a summer event "Steam Summer Sale" with the most delicious reward being animated avatar border and pretty animated background as shown below. However, the process of completing the task is quite difficult and time consuming. So today I will show you how to get all the rewards in 1 minute!
 
 How to get all the rewards of Steam Summer Sale 2022 in 1 minute
